@@ -1,3 +1,3 @@
 # ick
 idk
-(https:www.reddit.com)
+(https:www.rumble.com)
